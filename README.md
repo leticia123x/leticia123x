@@ -1,2 +1,2 @@
 Leticia, 15 anos, quero ser uma designer de sobrancelhas no futuro.
-![](https://tenor.com/pt-BR/view/hanseojun-truebeauty-gif-20263499)
+![](![hanseojun-truebeauty](https://github.com/user-attachments/assets/a5bc08a0-1fa1-4325-a0f5-e73f5580eb86)
